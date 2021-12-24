@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ef4ort
-- 👀 I’m interested in educative alliances  
-- 🌱 I’m currently learning to trade 
-- 💞️ I’m looking to collaborate on crypto oppotunities 
+- 👀 I’m interested in educative and cooperative alliances  
+- 🌱 I’m currently learning to trade crypto 
+- 💞️ I’m looking to collaborate on crypto news and opportunities 
 - 📫 How to reach me best via twiiter @ef4ort
 
 <!---
